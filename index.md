@@ -15,7 +15,7 @@
 
 ## [**✅"Visit The Official Website To Get Your Bottle Now"✅**](https://www.globalfitnessmart.com/get-nervogen-pro)
 
-### [Nervogen Pro](https://sites.google.com/view/nervogenprooffers/home) is a nutritional supplement that supports individuals suffering from neuropathic pain
+[Nervogen Pro](https://sites.google.com/view/nervogenprooffers/home) is a nutritional supplement that supports individuals suffering from neuropathic pain
 
 [Nervogen Pro](https://groups.google.com/g/nervogen-pro-offers/c/WYLwFlxRFQE) is a doctor-tested and approved neuropathic supplement designed to reduce discomfort caused by nerve damage. Read this review to know more about this 2 Pack supplement.
 
